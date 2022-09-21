@@ -1,4 +1,2 @@
 # Ghala-Prep
-GhjasdwkhufiwelIHfbvf,zksndahvf.dsknfdMBv.dbkncbjwabfsKJ.vhjABS>kzvhjvbsljzhdvjbzd.kjvabvsgjsbvjkbv.hbkjBVHVKbVHJ
-VHKJdavj.BBvhsdbcKJS bcx vgdsvckjb v  hvbdskvjKNc kC B .hcbb b bjDHVvd znvvjkfc h vbvv bxjcbVc vsc babfgfhdagc y
-bcH
+ Hi Ghala, its so nice having you guys here. Y'all know what? We are having this and we are doing it! Go Ghala! It's G for Ghala!
